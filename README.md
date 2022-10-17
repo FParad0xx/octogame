@@ -1,3 +1,0 @@
-# octogame
-bruhmoment 
-hello!!!!
